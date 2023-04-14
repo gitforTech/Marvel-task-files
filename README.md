@@ -6,5 +6,7 @@
 ![task4](https://user-images.githubusercontent.com/122624851/232025425-42fe93cc-5a3b-4018-a782-d0586b912d11.jpg)
 ![task9](https://user-images.githubusercontent.com/122624851/232025633-f73c3189-6518-42c5-83b7-9e26caceb427.jpg)
 ![task10](https://user-images.githubusercontent.com/122624851/232025842-01f556a7-418e-417f-b8c8-6d44b3b9b8f6.jpg)
+![task10a](https://user-images.githubusercontent.com/122624851/232026054-82769e85-f4d6-45c5-9770-93a819f9ba67.jpg)
+
 
 
