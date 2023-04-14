@@ -8,6 +8,7 @@
 ![task10](https://user-images.githubusercontent.com/122624851/232025842-01f556a7-418e-417f-b8c8-6d44b3b9b8f6.jpg)
 ![task10a](https://user-images.githubusercontent.com/122624851/232026054-82769e85-f4d6-45c5-9770-93a819f9ba67.jpg)
 ![task11](https://user-images.githubusercontent.com/122624851/232026193-ad6d6eeb-5bb3-49b6-97db-09055de81872.jpg)
+![task12](https://user-images.githubusercontent.com/122624851/232026371-6a8a9a64-5c13-4080-88b4-ff43b9f40a2e.jpg)
 
 
 
