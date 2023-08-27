@@ -13,6 +13,7 @@
 ![tasks](https://drive.google.com/uc?export=view&id=1NFCt2XUSiS8Duk4gAybglAFwK6cUg8Bu)
 ![tasks](https://drive.google.com/uc?export=view&id=1SNYE5DjlgOTvcoc6pxrh09b4UVt7CfC6)
 ![tasks](https://news.microsoft.com/wp-content/uploads/prod/sites/612/2021/06/Hero-Bloom-Logo-800x533.jpg)
+![tasks](https://drive.google.com/file/d/1NSC44DY9i8mOsTts5fUEJkDOSQQw2Dk7/view?usp=drive_link)
 
 
 
